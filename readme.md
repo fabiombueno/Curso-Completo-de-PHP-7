@@ -4,11 +4,10 @@ Teste   VS Code
 ggfg
 gfgf
 
+ttt
+tttt
 
-gf
-gf
-gf
-g
-f
-
-
+kkkkkkkkkkkk
+´´
+jjjj
+´pppp
